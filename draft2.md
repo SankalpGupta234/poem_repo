@@ -12,12 +12,23 @@ It seems the picture came to life
 The portrait paints away
 Their lively laughter gray.
 
+Alive and tall, the oak tree heaves
+Within its rusty cloak of leaves;
+Isn't it usual?
+For people to duel
+Their palpable hearts
+With a frozen facade?
+The way of life, a battle to win
+The soul within, or the solitary skin?
+The oak leaves slowly fall apart
+A fresh start with the same old heart.
+
 There stood a man with silver hair
 His hands though worn but warm with care
 And full of grains, for birds and squirrels
-A quarrel erupts from the utterly feral
+As squeaks and flutter of feathers settle
 I wonder why of all,
-I stalled at this snarly brawl.
+I stalled at this hungry squall.
 
 Behind the man, a statue stood
 Of lustrous stone and polished wood
